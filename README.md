@@ -1,1 +1,1 @@
-# NathanielGlory.github.io
+# Glory
